@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @evionica-dev
+- 👀 I’m interested in chaining avioation industry
+- 📫 How to reach me github@evionica.com
